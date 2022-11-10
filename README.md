@@ -1,0 +1,1 @@
+# Supply-use-table-analysis-for-descriptive-analysis-of-the-Indian-economy
